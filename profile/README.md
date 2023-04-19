@@ -1,4 +1,4 @@
-## Hi! We are comrades now 👋
+## Hey, we are comrades now 👋
 
 <!--
 
